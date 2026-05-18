@@ -108,8 +108,7 @@ I aim to build innovative solutions that bridge **Software Engineering + Embedde
 
 ## 📫 Connect With Me
 📧 Email: **corneliujone200@gmail.com**  
-💼 LinkedIn: *(Add your LinkedIn profile here)*  
-💻 GitHub: *(Add your GitHub profile link here)*
+💼 LinkedIn: www.linkedin.com/in/corneliujonathan-s-t-4a5392275
 
 ---
 
